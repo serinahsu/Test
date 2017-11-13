@@ -27,6 +27,4 @@ TWYCC decides to share the voice of Taiwan to the world.
 Taiwan is a vulnerable island suffer from climate change and owns as a 1st and 6th emission of carbon of power plant at the same time . 
 TWYCC expects to help govenment and industry sector to reduse the emission of carbon and green house gas.
 
-
-
-
+ http://twycc.org.tw/
